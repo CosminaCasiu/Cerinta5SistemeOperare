@@ -1,0 +1,1 @@
+# Cerinta5SistemeOperare
